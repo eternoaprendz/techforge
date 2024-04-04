@@ -1,0 +1,1 @@
+Define-se texto como um conjunto de palavras e frases encadeados que permitem interpretação e transmitem uma mensagem. Pode ser qualquer obra escrita em versão original que constitui um livro ou um documento escrito. Um texto é uma unidade linguística de extensão superior a frase.
